@@ -1,2 +1,5 @@
-# princess-tale-hack-coupon-cheats-codes
-Princess Tale Hack coupon cheats codes 2021 unlimited stars
+# Princess Tale Hack coupon cheats codes 2021 unlimited stars
+
+Princess Tale Hack coupon cheats codes 2021 unlimited stars - Once you choose a Princess Tale coupon hack to play on, you get into it. The interface here is easy to understand. The stage map is located in the upper left corner of the screen and initially darkens because the stage is not detected. The target on the map shows your main target on the stage. Princess Tale cheats codes for unlimited stars is designed in the style of Super World and other classic platforms. Through the super world, you can go through different stages and levels. Each stage can have a maximum of several exits. The main exit leads to the next stage of the main story, while the other exits lead to the secret stage scattered in the super world. The game also has an energy system, which is represented by a coffee cup. Every stage you decide to play requires a certain amount of energy. Your performance on each stage is represented by the number of stars under the stage icon.
+
+<a href="https://trustmod.top/princess-tale/">Visit Now</a>
